@@ -1,4 +1,4 @@
-#  
+#  rivals Script secure is the best rivals Script, featuring infinite resources and silent aim. Safe and powerful for all your needs.
 
 
 
